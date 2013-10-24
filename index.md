@@ -6,3 +6,5 @@ Mi chiamo Adriana. Studio l'effetto di agricultura sull'api. Oggi, le gente camb
 L'anno prossimo, saro nel mio terzo anno. Spero che potero finiscere prima di tre anni.
 
 Saro venti cinque anni quanto finisco il mio dotorato. 
+
+Quando finisco, voglio vivere a Londra con il mio fidanzato - speriamo che possiamo cercare un lavoro vicino a Londra.
