@@ -7,4 +7,4 @@ L'anno prossimo, saro nel mio terzo anno. Spero che potero finiscere prima di tr
 
 Quando finisco, voglio vivere a Londra con il mio fidanzato - speriamo che possiamo cercare un lavoro vicino a Londra.
 
-Addesso, ho studiato le tratte dell'api.
+Addesso, studio le tratte dell'api.
